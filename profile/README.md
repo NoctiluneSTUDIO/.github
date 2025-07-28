@@ -1,4 +1,6 @@
-## where am I 
+## Welcome!
+
+we're uh noctilune i think we make games 
 
 <!--
 
